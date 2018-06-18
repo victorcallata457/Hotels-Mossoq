@@ -1,2 +1,0 @@
-# Hotels-Mossoq
-hola chicas
